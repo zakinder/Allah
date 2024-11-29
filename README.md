@@ -24,3 +24,5 @@ This verse suggests that the heavens and the earth were initially in a gaseous o
 Surah Fussilat (41:11):
 
 "Then Allah(He Is Used as Reference Allah is not He Or She) directed Himself to the heaven while it was smoke and said to it and to the earth, 'Come [into being], willingly or by compulsion.' They said, 'We have come willingly.'"
+
+https://www.youtube.com/watch?v=NjYUhFvbFmA
