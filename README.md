@@ -29,5 +29,4 @@ https://www.youtube.com/watch?v=NjYUhFvbFmA
 
 # ForHumans
 
-True Purpose Of Adam Only Mentioned In Quran Read and Decode It(TellingHumans)
-FromSA611982: In Quran Verses Purpose Of Adam Find The Status Of Unseen. ThereFore Humans Need Locate verses and Put It Together. Those Simple Verses Why They Read It Or Maybe Their Paths DoesNot Let Them Read It ThereFore Need To Focus.
+Never compare two verses; instead, read a single verse, understand it, and continue reading. The point is to read verses with a good perspective or good intentions rather than comparing them argumentatively in your mind or engaging in a mind-to-mind debate.
