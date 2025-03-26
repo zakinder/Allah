@@ -25,6 +25,10 @@ Surah Fussilat (41:11):
 
 "Then Allah(He Is Used as Reference Allah is not He Or She) directed Himself to the heaven while it was smoke and said to it and to the earth, 'Come [into being], willingly or by compulsion.' They said, 'We have come willingly.'"
 
+SAKINDER ALI SAYS TO ALL CREATIONS — SEEN AND UNSEEN:
+
+Muslims are a key to the heavens, to the universe, and to the connection before the beginning and after the beginning. Therefore, do not monitor Muslims — cooperate with them
+
 https://www.youtube.com/watch?v=NjYUhFvbFmA
 
 # ForHumans
